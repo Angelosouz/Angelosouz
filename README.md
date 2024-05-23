@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Angelo
-- 👀 I’m interested in career
+- 👀I'm interested in changing careers
 - 🌱 I'm currently updating...
 - 💞️ I seek to collaborate in all areas
 - 📫 How to contact me... email
