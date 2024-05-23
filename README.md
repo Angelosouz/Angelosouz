@@ -3,7 +3,7 @@
 - 🌱 I'm currently updating...
 - 💞️ I seek to collaborate in all areas
 - 📫 How to contact me... email
-- 😄 Pronouns: He/him
+- 😄 Pronouns: He/FROM HIM
 - ⚡ Curiosity: I like doing something new.
 
 <!---
